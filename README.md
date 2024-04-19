@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @RoshanShah8055
+- 👋 Hi, I’m @Roshan Shah
 - 👀 I’m interested in electronics and coding
 - 🌱 I’m currently learning electronics and coding
 - 📫 How to reach me Through discord
